@@ -24,8 +24,19 @@ Yes 100%
 
 - Dictation 33 ，easy 60
 
-   
+#### 听写 
 
+- 我的：***
+- 答案：I was lifting,you know ,chairs out of the way,broken glass uh,other sanitary items I don't want to get into,but uh,it was uh,horrfic to say the least.
+
+#### 词汇
+
+- horrfic  可怕的
+- gross 令人恶心的，  gross profit 毛利润
+- disgusting 令人反感的，令人恶心的  ，disgust 厌恶，反感 ，使人厌恶
+- wheel 车轮
+
+-----------------------
 ### 2024.6.24
 
 - Dictation 14 
